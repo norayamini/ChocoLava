@@ -1,19 +1,4 @@
- CHOCOLAVA
-
-Here’s how to make incredibly decadent homemade chocolate lava cakes!
-
-Ingredients
-
-6 ounces (170g) high quality semi-sweet chocolate*
-1/2 cup (115g; 1 stick) unsalted butter
-1/4 cup (31g) all-purpose flour (spoon & leveled)
-1/2 cup (60g) confectioners’ sugar
-1/8 teaspoon salt
-2 large eggs
-2 large egg yolks*
-optional for topping: ice cream, raspberries, and/or chocolate syrup
-
-Instructions
+RECIPIE
 
 1. Spray four 6 ounce ramekin with nonstick cooking spray and dust with cocoa powder. This ensures the cakes will seamlessly come out of the ramekins when inverted onto a plate in step 7. *Or spray half of a 12-count muffin pan and dust with cocoa powder. If baking in a muffin pan, the recipe will yield 6 cakes.
 
